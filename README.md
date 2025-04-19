@@ -1,3 +1,1 @@
-## Hi there 👋 I'm a collage freshman from SCUT.
-Not nothing what should i say, let me just put some beautiful anime girl on the top!!!😁
-![背景（大）](https://github.com/earththreebody/earththreebody/assets/142904962/da991c0b-f92c-4706-b788-45bed7dc66f7)
+![59f2ba6e-641e-45ae-b7a3-71a4f5c5ad9d](https://github.com/user-attachments/assets/fc82f583-4c22-4b69-a303-0f3db0705913)
